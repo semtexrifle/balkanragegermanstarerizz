@@ -1,1 +1,1 @@
-# balkanragegermanstarerizz
+HATE FROM ME
